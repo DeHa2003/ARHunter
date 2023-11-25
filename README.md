@@ -1,2 +1,1 @@
-# ARHunter
-[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/LvXEUI9QU7Ig0okv/0.jpg)](https://www.youtube.com/watch?v=LvXEUI9QU7Ig0okv)
+[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/bLSVgMKmh8Q&t=1s/0.jpg)](https://www.youtube.com/watch?v=bLSVgMKmh8Q&t=1s)
